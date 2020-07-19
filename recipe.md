@@ -1,0 +1,15 @@
+# Recipe 
+## Instructions
+- To make the cake: Preheat oven to 350°F/180°C. Grease two 8-inch or 9-inch cake pans that are at least 2-inches high, and line the bottom of the pan with a round piece of parchment paper.
+In a medium bowl, sift together flour, cornstarch, cocoa powder, baking soda, and salt. Set aside.
+
+- In a standing mixer fitted with the paddle attachment, beat together butter and sugar on medium speed until light and fluffy, 3-4 minutes. Scrape down the sides and bottom of the bowl as necessary. Beat in oil. The batter might look a bit curdled, that's ok. Add eggs, one at a time, mixing well between each addition. Add the oil, egg yolks, vanilla extract, and vinegar and beat on high for 2 minutes. (Set the egg whites aside.) Scrape down the sides and up the bottom of the bowl with a rubber spatula as needed.
+- With the mixer on low speed, add the dry ingredients in 2-3 additions alternating with the buttermilk. Beat in your desired amount of food coloring just until combined. I use 1-2 teaspoons gel food coloring. Vigorously whisk or beat the 4 egg whites on high speed until fluffy peaks form as pictured above, about 3 minutes. Gently fold into cake batter. The batter will be silky and slightly thick.
+- Divide batter between cake pans. Bake for 30-32 minutes or until the tops of the cakes spring back when gently touched and a toothpick inserted in the center comes out clean. If the cakes need a little longer as determined by wet crumbs on the toothpick, bake for longer. However, careful not to overbake as the cakes may dry out. Remove cakes from the oven and cool completely in the pans set on a wire rack. The cakes must be completely cool before frosting and assembling.
+
+- Make the frosting: In a large bowl using a handheld or stand mixer fitted with a whisk or paddle attachment, beat the cream cheese and butter together on medium-high speed until smooth, about 2 minutes. Add the confectioners’ sugar, cream/milk, vanilla extract, and a pinch of salt. Beat on low speed for 30 seconds, then increase to high speed and beat for 3 minutes until completely combined and creamy. Add more confectioners’ sugar if frosting is too thin, more milk if frosting is too thick, or an extra pinch of salt if frosting is too sweet. Frosting should be soft, but not runny.
+
+-Assemble and frost: Using a large serrated knife, slice a thin layer off the tops of the cakes to create a flat surface. Discard or crumble over finished cake. Place 1 cake layer on your cake stand or serving plate. Evenly cover the top with frosting. Top with 2nd layer and spread remaining frosting all over the top and sides. I always use an icing spatula and bench scraper for the frosting. I used Wilton piping tip #12 for decoration around the top.
+
+-Refrigerate cake for at least 30-60 minutes before slicing. This helps the cake hold its shape when cutting.
+Cover leftover cake tightly and store in the refrigerator for 5 days. Frosted cake or unfrosted cake layers can be frozen up to 2-3 months. Thaw overnight in the refrigerator and bring to room temperature before decorating/serving.
